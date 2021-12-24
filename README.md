@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @chnndlr
+- 👀 I’m interested in 3d modeling and cad!
+- 🌱 I’m currently learning cad however I want to learn more about coding
+- 📫 How to reach me: chanandler#0040 on discord
